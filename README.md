@@ -34,7 +34,7 @@ $\color{#ffffff}{\textsf{⠀ :}}$⠀ ⠀ $\color{#84fff2}{\textsf{zero}}$ ⠀ �
 <br/>
 $\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{always}}$
 <br/>
-[rentry](https://rentry.co/underrtale) 　‎　 [pronouns.p](https://en.pronouns.page/@ctwqls) 　‎　 [art gallery](https://do-lt.straw.page)
+[rentry](https://rentry.co/underrtale) 　‎　 [pronouns.p](https://en.pronouns.page/@undertaIe) 　‎　 [art gallery](https://do-lt.straw.page)
 
                                                                                                                                                           
 
