@@ -31,11 +31,25 @@
  
 
  
-$\color{#ffffff}{\textsf{⠀ :}}$⠀ ⠀ $\color{#82D7D0}{\textsf{zero}}$ ⠀ ⠀ $\color{#BE231F}{\textsf{or}}$ ⠀ $\color{#808080}{\textsf{zen}}$
+$\color{#⠀ ⠀ }{\textsf{⠀ :}}$⠀ ⠀ $\color{#82D7D0}{\textsf{zero}}$ ⠀ ⠀ $\color{#BE231F}{\textsf{or}}$ ⠀ $\color{#808080}{\textsf{zen}}$
 <br/>
 $\color{#82D7D0}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$ ⠀ ⠀ $\color{#BE231F}{\textsf{always}}$
 <br/>
 [rentry](https://rentry.co/underrtale) 　‎　 [pronouns.p](https://en.pronouns.page/@undertaIe) 　‎　 [art gallery](https://do-lt.straw.page) 　‎　 [ata.book](https://undertaie.atabook.org/)
+
+
+
+
+                                                                                                                                                          
+
+
+
+
+
+ 
+
+ 
+$\color{#82D7D0}{\textsf{art}}$⠀ ⠀ $\color{#808080}{\textsf{is}}$⠀ ⠀ $\color{#82D7D0}{\textsf{by}}$⠀ ⠀ [@aslniko](https://x.com/aslniko?s=11)⠀ ⠀ $\color{#808080}{\textsf{on}}$⠀ ⠀ $\color{#82D7D0}{\textsf{X}}$
 
                                                                                                                                                           
 
