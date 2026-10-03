@@ -11,12 +11,13 @@
 
  
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=FF0000)　 $\color{#84fff2}{\textsf{⠀ Sans}}$⠀ ⠀ $\color{#808080}{\textsf{is}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{literally}}$ ⠀ ⠀ $\color{#84fff2}{\textsf{me}}$ ⠀ ⠀ 
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=FF0000)　 $\color{#82D7D0}{\textsf{⠀ dear}}$⠀ ⠀ $\color{#BE231F}{\textsf{lord}}$
 
 
 </p>
 
-<p align="center"><img width="250" src="https://github.com/user-attachments/assets/69e23f32-33d1-4f42-a274-5124496836e5" align="right" width="250" /></p>
+<p align="center"><img width="350" src="https://github.com/user-attachments/assets/05d7881a-d13f-47c1-a4d8-06f00cb58b97" align="right" width="350" /></p>
+
 
 
 
@@ -30,9 +31,9 @@
  
 
  
-$\color{#ffffff}{\textsf{⠀ :}}$⠀ ⠀ $\color{#84fff2}{\textsf{zero}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{or}}$ ⠀ $\color{#808080}{\textsf{zen}}$
+$\color{#ffffff}{\textsf{⠀ :}}$⠀ ⠀ $\color{#82D7D0}{\textsf{zero}}$ ⠀ ⠀ $\color{#BE231F}{\textsf{or}}$ ⠀ $\color{#808080}{\textsf{zen}}$
 <br/>
-$\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{always}}$
+$\color{#82D7D0}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$ ⠀ ⠀ $\color{#BE231F}{\textsf{always}}$
 <br/>
 [rentry](https://rentry.co/underrtale) 　‎　 [pronouns.p](https://en.pronouns.page/@undertaIe) 　‎　 [art gallery](https://do-lt.straw.page) 　‎　 [ata.book](https://undertaie.atabook.org/)
 
@@ -48,10 +49,6 @@ $\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$
                                                                                                                                                           
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7xfoorpoummbqrmrxycwuftau&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7xfoorpoummbqrmrxycwuftau&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false">
-  </a>
-</p>
 
 
 
