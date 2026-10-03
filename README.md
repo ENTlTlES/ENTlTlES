@@ -11,7 +11,7 @@
 
  
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=FF0000)　 $\color{#82D7D0}{\textsf{⠀ dear}}$⠀ ⠀ $\color{#BE231F}{\textsf{lord}}$
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=82D7D0)　 $\color{#82D7D0}{\textsf{⠀ dear}}$⠀ ⠀ $\color{#BE231F}{\textsf{lord}}$
 
 
 </p>
