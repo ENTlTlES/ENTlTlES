@@ -16,7 +16,7 @@
 
 </p>
 
-<p align="center"><img width="350" src="https://github.com/user-attachments/assets/05d7881a-d13f-47c1-a4d8-06f00cb58b97" align="right" width="350" /></p>
+<p align="center"><img width="250" src="https://github.com/user-attachments/assets/05d7881a-d13f-47c1-a4d8-06f00cb58b97" align="right" width="250" /></p>
 
 
 
