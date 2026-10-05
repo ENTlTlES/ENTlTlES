@@ -12,7 +12,7 @@ $\color{#FF439D}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://www.t
 <p align="center"><img width="750" src="https://github.com/user-attachments/assets/d60b7c73-3574-492b-a4a6-46e109e689e9" /></p>
 
 
-$\color{#⠀ ⠀ }{\textsf{⠀  ˙𐃷˙}}$⠀ ⠀ $\color{#FF49A1}{\textsf{valentine}}$ ⠀  ⠀ $\color{#8899DB}{\textsf{or}}$ ⠀ $\color{#FFB3C3}{\textsf{val}}$ ⠀ $\color{#9AEBAA}{\textsf{ུ ❃۪  }}$ ⠀  ⠀ ⠀ $\color{#D843B5}{\textsf{15}}$ $\color{#8899DB}{\textsf{y}}$⠀ $\color{#ffffff}{\textsf{ུ.}}$
+$\color{#⠀ ⠀ }{\textsf{⠀  ﹕}}$⠀ ⠀ $\color{#FF49A1}{\textsf{valentine}}$ ⠀  ⠀ $\color{#8899DB}{\textsf{or}}$ ⠀ $\color{#FFB3C3}{\textsf{val}}$ ⠀ $\color{#9AEBAA}{\textsf{ུ ❃۪  }}$ ⠀  ⠀ ⠀ $\color{#D843B5}{\textsf{15}}$ $\color{#8899DB}{\textsf{y}}$⠀ $\color{#ffffff}{\textsf{ུ.}}$
 <br/>
 $\color{#71F7C9}{\textsf{heavy}}$⠀ $\color{#EFF6C1}{\textsf{ུʚɞ}}$ ⠀ $\color{#FFDDA9}{\textsf{⠀cudscomf}}$ ⠀ $\color{#ffffff}{\textsf{／}}$⠀ ⠀ $\color{#FDF3A0}{\textsf{w2i}}$ ⠀ ⠀ $\color{#D4FE9E}{\textsf{recommended}}$
 <br/>
