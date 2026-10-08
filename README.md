@@ -26,6 +26,17 @@ $\color{#8899DB}{\textsf{ Y }}$ $\color{#FDF3A0}{\textsf{ O }}$ $\color{#8899D
 <br/>
 
 [rentry](https://rentry.co/underrtale) 　[ata](https://undertaie.atabook.org/)　　[pronouns](https://en.pronouns.page/@undertaIe)　　[my arts](https://do-lt.straw.page)
+
+$\color{#ffffff}{\textsf{ lip }}$ $\color{#ffffff}{\textsf{ sync }}$ $\color{#ffffff}{\textsf{ practice }}$ $\color{#ffffff}{\textsf{ haha }}$ $\color{#ffffff}{\textsf{ wip }}$
+<br/>
+$\color{#ffffff}{\textsf{ everyone }}$ $\color{#ffffff}{\textsf{ is }}$ $\color{#ff0000}{\textsf{ DOOMED }}$ $\color{#fffff}{\textsf{ once }}$ $\color{#ffffff}{\textsf{ i }}$ $\color{#ffffff}{\textsf{ know }}$ $\color{#ffffff}{\textsf{ how }}$ $\color{#ffffff}{\textsf{ to }}$ $\color{#ffffff}{\textsf{ animate }}$ $\color{#ffffff}{\textsf{ frame }}$ $\color{#ffffff}{\textsf{ by }}$ $\color{#ffffff}{\textsf{ frame }}$ 
+
+
+
+https://github.com/user-attachments/assets/ddc805b1-d89c-4dd9-8d68-090081c7bf99
+
+
+
 </div>
 
  
