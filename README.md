@@ -3,7 +3,7 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=ff49a1)
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　RADS　　　&style=for-the-badge&color=ff49a1)
 
 $\color{#FF439D}{\textsf{ art⠀⠀is　by　}}$  [sunbeamgoobr83](https://www.tumblr.com/sunbeamgoobr83)  $\color{#99E9AC}{\textsf{ on　tumblr !!　}}$
 
